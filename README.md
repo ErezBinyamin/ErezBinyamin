@@ -7,4 +7,4 @@
 - 📫 How to reach me:
   - :bust_in_silhouette: LinkedIn: [https://www.linkedin.com/in/erez-binyamin](https://www.linkedin.com/in/erez-binyamin)
   - :email: Email: [erezbinyamin@protonmail.com](mailto:erezbinyamin@protonmail.com?subject=[GitHub]%20Hello%20There)
-  - :calling: Phone Number: 8675-309
+  - :calling: Phone Number: [8675-309](https://www.youtube.com/watch?v=6WTdTwcmxyo&list=RD6WTdTwcmxyo&t=35s)
